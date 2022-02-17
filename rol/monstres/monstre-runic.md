@@ -1,0 +1,4 @@
+- Arma rara
+- Persegueix l'altre monstre
+- Sembla que provoca els glitches, pot alliberar-se dels atacs
+- Pot desintegrar les persones

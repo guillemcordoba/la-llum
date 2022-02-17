@@ -1,0 +1,2 @@
+- Lider dels [[soldats]]
+- Dels més forts de la ciutat

@@ -1,0 +1,2 @@
+- Company de [[escorpio]]
+- Viu a la [[zona-oest]]

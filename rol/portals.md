@@ -1,0 +1,1 @@
+Sempre vas d'un portal a l'altre.
